@@ -1,2 +1,2 @@
-# wanderlust
+# rohitwanderlust.com
 rohitwanderlust.com
